@@ -1,1 +1,3 @@
 # Viktoria Nesterenia
+## Contacts
+### Skills
